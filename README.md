@@ -1,1 +1,1 @@
-Tugas mata kuliah penambangan data semester 5 udinus 2024
+Cuman tugas mata kuliah penambangan data semester 5 2024
